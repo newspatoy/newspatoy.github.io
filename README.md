@@ -1,0 +1,1 @@
+# newspatoy.github.io
